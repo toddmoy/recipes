@@ -1,4 +1,4 @@
-# Tzaziki Sauxe
+# Tzaziki Sauce
 
 ## Ingredients
 
