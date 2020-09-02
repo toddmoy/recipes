@@ -25,7 +25,7 @@
 * Black Pepper, to taste
 * Salt, to taste
 
-## Directions
+## Instructions
 
 1. Rinse and chop the produce accordingly.  Whisk together the sauce ingredients and set aside.
 1. Set a large pan or skillet to medium heat.  Once hot, add 1 tsp. olive oil or vegetable stock.  Then, add onion and garlic.  Cook until onion is translucent, stirring occasionally to avoid burning, 4-5 minutes.
