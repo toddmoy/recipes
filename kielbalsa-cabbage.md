@@ -1,4 +1,4 @@
-# Kielbalsa & Cabbage
+# Kielbalsa, Cabbage, & Beans
 
 ## Ingredients
 
