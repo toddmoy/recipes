@@ -1,6 +1,6 @@
 # Carnitas
 
-INGREDIENTS:
+## Ingredients
 
 - 1 tablespoon chili powder
 - 2 teaspoons ground cumin
@@ -12,8 +12,8 @@ INGREDIENTS:
 - 2 onions, quartered
 - 2 oranges, juiced
 - 2 limes, juiced
-- 
-DIRECTIONS:
+
+## Instructions
 
 1. In a small bowl, combine chili powder, cumin, oregano, salt and pepper. Season pork shoulder with spice mixture, rubbing in thoroughly on all sides.
 1. Place garlic, onions, orange juice, lime juice and seasoned pork shoulder into a slow cooker. Cover and cook on low heat for 8 hours or high for 4-5 hours.
