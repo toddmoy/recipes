@@ -6,7 +6,7 @@
 - 1 red onion, cut into thin slices
 - 1 tablespoon maple syrup
 - 1 tablespoon olive oil
-- ½ teaspoon five spice powder**
+- ½ teaspoon five spice powder
 - ¼ teaspoon salt
 
 **Soup**
