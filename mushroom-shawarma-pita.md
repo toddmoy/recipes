@@ -2,18 +2,18 @@
 
 ## Ingredients
 
-* ¾ pound portobello mushroom caps, sliced 1/2-inch thick
-* 1 medium red onion, halved and cut into 1/3-inch wedges
-* 3 tablespoons plus 2 teaspoons extra-virgin olive oil
-* 1 teaspoon ground cumin
-* ¾ teaspoon ground coriander
-* ½ teaspoon ground sweet or smoked paprika (optional)
-* Kosher salt and black pepper
-* 4 pitas
-* 2 packed cups very thinly sliced red cabbage (about 6 ounces)
-* ¾ cup low-fat or whole-milk Greek yogurt
-* ¾ teaspoon ground turmeric
-* Cilantro or mint, for serving
+- ¾ pound portobello mushroom caps, sliced 1/2-inch thick
+- 1 medium red onion, halved and cut into 1/3-inch wedges
+- 3 tablespoons plus 2 teaspoons extra-virgin olive oil
+- 1 teaspoon ground cumin
+- ¾ teaspoon ground coriander
+- ½ teaspoon ground sweet or smoked paprika (optional)
+- Kosher salt and black pepper
+- 4 pitas
+- 2 packed cups very thinly sliced red cabbage (about 6 ounces)
+- ¾ cup low-fat or whole-milk Greek yogurt
+- ¾ teaspoon ground turmeric
+- Cilantro or mint, for serving
 
 ## Instructions
 
