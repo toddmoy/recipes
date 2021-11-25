@@ -1,3 +1,3 @@
 # Recipes
 
-Things that taste good in your mouth.
+Things that taste good in your mouthhole.
