@@ -18,3 +18,7 @@
 1. Meanwhile, combine beans and tuna in a large bowl. Once onions have marinated for 5 minutes, squeeze onion slices to release moisture into the bowl that they marinated in, then transfer onion slices to large bowl with beans and tuna; set large bowl aside.
 1. There should be at least 1 tablespoon (15ml) of vinegar-onion juice liquid left in the small bowl. Add garlic, bean cooking liquid (or, if using canned beans, 2 teaspoons (10ml) water plus 1 teaspoon (5ml) Dijon mustard), and 1/4 teaspoon ground black pepper, and whisk to combine. Whisking constantly, slowly drizzle in olive oil. Stir in parsley and season to taste with salt.
 1. Transfer dressing to large bowl with bean-tuna mixture, using a rubber spatula to scrape all of the dressing into the large bowl. Gently toss salad to evenly coat with dressing, taking care not to crush tuna or beans in the process. Season to taste with salt and pepper. Divide salad between individual serving plates or one large serving platter, drizzle lightly with olive oil and a splash of vinegar, and serve.
+
+---
+
+Maybe also toss in some celery and lemon juice
